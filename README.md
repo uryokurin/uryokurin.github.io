@@ -1,1 +1,0 @@
-# uryokurin.github.io
